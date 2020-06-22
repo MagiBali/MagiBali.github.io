@@ -1,0 +1,2 @@
+# MagiBali.github.io
+Mogyimegfigyelő
